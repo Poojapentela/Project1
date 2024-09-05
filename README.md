@@ -1,0 +1,1 @@
+In this case, I have been opportune to develop hands-on Java skills through application of programming knowledge, coding, activities, projects, and problem-solving exercises. It also moves away from just content-based knowledge, thereby enabling me to apply concepts, discover more about Java and develop practical skills
